@@ -1,0 +1,1 @@
+# ogrenme-temelli-sosyal-bilgiler-7-sinif-etkinlik-kitabi-32
